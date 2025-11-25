@@ -1,4 +1,8 @@
-# How to Throw a 90s Throwback Party (And The Best Custom Shirts to Wear)
+---
+title: "How to Throw a 90s Throwback Party (And The Best Custom Shirts to Wear)"
+description: "Discover how to throw an epic 90s throwback party with the best custom vintage shirts! From personalized photo tees to bootleg-style designs, find perfect retro party outfits that'll make your celebration unforgettable. Get inspired now!"
+pubDate: "Nov 08 2025"
+---
 
 Okay, so I've been *obsessed* with 90s nostalgia lately, and honestly? Throwing a 90s throwback party might be one of the most fun things you can do right now. There's something about that decade—the music, the fashion, the whole vibe—that just hits different. And here's the thing: if you're gonna do it, you gotta do it right. That means the perfect playlist, the right snacks, and most importantly? The absolute best custom vintage shirts that scream "I was born in the wrong decade" (or maybe just "I appreciate good style").
 
